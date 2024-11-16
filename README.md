@@ -1,3 +1,4 @@
+![Untitled1113_20241116153150](https://github.com/user-attachments/assets/1e5ca27b-1e81-4c95-8072-86f91f4b8d7a)
 
 <!--
 **BLOODY-SABBATH/BLOODY-SABBATH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
