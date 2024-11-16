@@ -1,5 +1,5 @@
-‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=BLOODY-SABBATH)
-![Untitled1113_20241116153150](https://github.com/user-attachments/assets/768aaca1-3fe2-4849-ac41-920b2c897e4d)
+‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎ ‎ ‎‎ ‎ ‎ ‎ ‎ ‎‎ ‎‎ ‎‎ ‎ ‎ ‎ ‎![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=BLOODY-SABBATH)
+![Untitled1113_20241116170328](https://github.com/user-attachments/assets/51eba136-92a6-4e03-af7e-6a456bdac03b)
 
 <!--
 **BLOODY-SABBATH/BLOODY-SABBATH** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
